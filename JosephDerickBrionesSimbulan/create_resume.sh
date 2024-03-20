@@ -8,8 +8,8 @@ Dynamic and results-driven IT professional seeking to leverage comprehensive tec
 
 **Education:**
 - Bachelor of Science in Information Technology
-  [University Name], [Location]
-  Graduated: [Month, Year]
+  Angeles University Foundation, Angeles City, Pampanga
+  Graduated: 2025
 
 **Skills:**
 - Proficient in network administration, including configuration, troubleshooting, and maintenance of routers, switches, and firewalls
